@@ -1,4 +1,3 @@
--  Yo, I’m anndywastaken
 -  I love coding and chilling on Discord with my friends
 -  I am currently studying IT at SPŠ Prosek in Prague
 -  Contact me:
